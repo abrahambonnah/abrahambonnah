@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @abrahambonnah
+- 👀 I’m interested in Ethical Hacking
+- 🌱 I’m currently learning Kali Linux
+- 💞️ I’m looking to collaborate on Ethical Hacking
+- 📫 How to reach me gmail.joemelcarters0@gmail.com
